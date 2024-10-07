@@ -1,4 +1,4 @@
-# 888rat
+# 888-RAT v1.21 [LIFETIME]
 888-RAT v1.21 [LIFETIME]
 
 888 rat for Windows, Android and Linux, lifetime activated !!!
