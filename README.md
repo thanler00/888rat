@@ -2,7 +2,7 @@
 888-RAT v1.21 [LIFETIME]
 
 888 rat for Windows, Android and Linux, lifetime activated !!!
-DM TELEGRAM @Y2ANKOO , PRICE 25$ 
+DM TELEGRAM @Y2NKOO , PRICE 25$ 
 features:
 
 Windows:
